@@ -7,9 +7,9 @@
 
 `    ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚    `
 
-    `c + h freely and heavily encouraged
+    c + h freely and heavily encouraged
 
-    i love interacting !!! dont b shy,,, pls int`
+    i love interacting !!! dont b shy,,, pls int
     
 `╰┈➤ {PUFF ILY}>>>`
 
