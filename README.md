@@ -5,7 +5,7 @@
 
     sean or spoke .ᐟ`
 
-    @ spyglassess or @ patchbreakers
+    @ spyglassess or @ patchbreakers on socials
 
 `    ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚    `
 
