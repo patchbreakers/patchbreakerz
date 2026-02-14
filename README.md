@@ -15,4 +15,4 @@
     
 `╰┈➤ {PUFF ILY}>>>`
 
-send me gimmicks on [sp](https://spyglassess.straw.page) and sign my [ata](https://patchbreakers.atabook.org/) (idk how ata works tbh sm1 helpme pls)
+send me gimmicks on [sp](https://spyglassess.straw.page) and sign my [ata](https://patchbreakers.atabook.org/) !!!!!
