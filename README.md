@@ -15,7 +15,7 @@
 
 `    ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚    `
 
-    my main fandoms are uu/ls, object shows, and epic the musical,
+    my main fandoms are uu/ls, object shows, roblox/minecraft args, and epic the musical
     though i also like phighting, regretevator, dandys world, & more !!
 
     my interests, outside of fandoms, are drawing, reading, writing, and aviation
